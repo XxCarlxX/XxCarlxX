@@ -1,11 +1,13 @@
-- 👋 Hi, I’m @XxCarlxX I 😜 love spending time building multi transcendental energy ponds. ClearLG
-- 👀 I’m interested in ...discovery of the Trip27 bash/pash 😜
-- 🌱 I’m currently learning ...every talent of splendid enterprise... 911OK
-- 💞️ I’m looking to collaborate on ...NEW energy ⚡⚡
-- 📫 How to reach me ..cjmurray774@outlook.com cjmurray_191@yahoo.com cjmurray191@gmail.com.
+- 👋 Hi, I’m @XxCarlxX I am now here to help, Contributing my part in development & building the foundations of our 'Lives' All_Clear
+- 👀 () I’m interested in ...OUR Discoverys along this journey as we move forwards together United  .US¦N45° 
+- 🌱 () I’m currently learning ...all data forms available for research. Future Enterprises will be made to every IOS/Android Developer. 
+- 💞️ () I’m looking to collaborate on ...NEW Connections realistic opportunities for empowerment to succeed and create. 
+- 📫 How to reach me ..
+https://www.instagram.com/user/xxcarldux/<!---https://www.facebook.com/user/XxCalELxX2Blakk/
+https://www.twitter.com/user/carl_bronx_nz/
 
-<!---
-XxCarlxX/XxCarlxX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+XxCarlxX/XxCarlxX is now active and ready to respond. Send your feedback_#data #special #repository #conquer `README.md` 
+(XxCarlxX/XxCarlxX) appears on your GitHub profile.
+
 --->
-A t o m s m a s h i n g F u n
+
